@@ -1,1 +1,1 @@
-Our Coachie is Coachie Mary, Her hubby is laughting!
+Our Coachie is Coachie Mary, Her hubby is laughing!
